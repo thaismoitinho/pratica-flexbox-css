@@ -1,1 +1,1 @@
-Atividade FLEX BOX - By Sptech.
+Atividade FLEX BOX - By SPtech.
